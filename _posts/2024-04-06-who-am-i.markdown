@@ -1,7 +1,7 @@
 ---
 layout: post
-title:  "who am i?"
-author: liv
+title:  "Who Am I?"
+author: Liv
 tags: weekly
 ---
 💭 I don't know who I am, so I figured I could share that and other thoughts with the Internet because, well, why not? 
