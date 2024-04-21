@@ -6,7 +6,7 @@ tags: weekly
 ---
 💭 I was discussing hobbies with my dad (do I want to learn Japanese, Korean, Mandarin or start making soap?) and he suggested a photography course. Not a bad shout, dad. Not a bad shout.  
 Drawing? I loved drawing as a teen, but my mother once told me that I have no talent. And I lost all interest in it, but as I've realised lately, a lot of my life decisions (degree, job, etc.) and hobbies are in response to what I thought was expected of me.  
-How do I figure out what I want to do? How do I explore creativity when I've willingly stuffed myself into a box all of my life?
+How do I figure out what **I** want to do? How **do** I explore creativity when I've willingly stuffed myself into a box all of my life?
 
 🎥 I discussed going to the movies with my dad, so let's see if he's actually going to come with me.
 
@@ -20,7 +20,7 @@ How do I figure out what I want to do? How do I explore creativity when I've wil
 
 💜 Call with L. Dungeons & Dragons with friends. [Garage Fiction](https://garagefiction.com/) call.
 
-🔗 [Esquire: make a living as a writer](https://www.esquire.com/entertainment/books/a45751827/make-a-living-as-a-writer/); Vox: [AI Publishing Scam](https://www.vox.com/culture/24128560/amazon-trash-ebooks-mikkelsen-twins-ai-publishing-academy-scam)
+🔗 Esquire: [Make a living as a writer](https://www.esquire.com/entertainment/books/a45751827/make-a-living-as-a-writer/); Vox: [AI Publishing Scam](https://www.vox.com/culture/24128560/amazon-trash-ebooks-mikkelsen-twins-ai-publishing-academy-scam)
 
 🍴 I made a lovely spiced minced meat & tomato sauce to eat with pasta, and chicken with a curry sauce over rice.
 
