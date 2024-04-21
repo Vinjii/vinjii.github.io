@@ -14,7 +14,7 @@ How do I figure out what I want to do? How do I explore creativity when I've wil
 
 🎮 I bought [Planescape: Torment](https://store.steampowered.com/app/466300/Planescape_Torment_Enhanced_Edition/) on sale and started it on my Steam Deck. It obviously is made for keyboard and mouse, but it works for now. I also started a new [RimWorld](https://store.steampowered.com/app/294100/RimWorld/) colony.
 
-📚 [Foreigner by C.J. Cherryh](https://www.goodreads.com/book/show/57043.Foreigner) - a buddy read over on the [Fantasy Buddy Reads](https://www.goodreads.com/group/show/192999) group on Goodreads. I'm still struggling with reading, but I desperately miss it.
+📚 [Foreigner by C.J. Cherryh](https://www.goodreads.com/book/show/57043.Foreigner) - a buddy read over on the [Fantasy Buddy Reads](https://www.goodreads.com/group/show/192999) group on Goodreads. I'm still struggling with reading, but I desperately miss it. I made a list of books to read with C. Looking at mostly award winning SFF.  
 
 🎵 Taylor Swift's [The Tortured Poets Department](https://www.rollingstone.com/music/music-album-reviews/taylor-swift-the-tortured-poets-department-review-1235006977/) - Dear Taylor, thank you for writing songs specifically about my life. I appreciate the effort. I cried. That album is like therapy, and I'm not even a Swiftie. *[And I'm pissed off you let me give you all that youth for free.](https://genius.com/Taylor-swift-so-long-london-lyrics)*
 
