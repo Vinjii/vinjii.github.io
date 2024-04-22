@@ -24,6 +24,6 @@ How do I figure out what **I** want to do? How **do** I explore creativity when 
 
 🍴 I made a lovely spiced minced meat & tomato sauce to eat with pasta, and chicken with a curry sauce over rice.
 
-🏃 Wed: 3.5K run; Sun: 4K run
+🏃 Wed: 3.5K run (bad Olivia, bad!)  
 
 ✒️ Procrastination wins. Where is C, and his accountability?
