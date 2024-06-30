@@ -23,7 +23,7 @@ Currently, I'm reading [Neal Stephenson's Termination Shock](https://www.goodrea
 
 🔗 Unfortunately behind a paywall, but basically AI is a bit of a problem: [Bloomberg: AI Wreaks Havoc on Global Power Systems](https://www.bloomberg.com/graphics/2024-ai-data-centers-power-grids)  
 
-🍴 Everything we eat, gets given to the dog first, just in case that's what'll finally get him to eat more than a bite or two. I've had two truffle burgers from [Truffle Burger](https://www.truffle-london.co.uk/) at the Southbank in London this week.  
+🍴 Everything we eat gets given to the dog first, just in case that's the food that'll finally get him to eat more than two bites. I've had two truffle burgers from [Truffle Burger](https://www.truffle-london.co.uk/) at the Southbank in London this week.  
 
 🏃 Various walks with Blue at a km/day pace, so nothing worth mentioning. I participated in Endure 24, Reading, and ran 24km in 24 hours at the beginning of June though.  
 
