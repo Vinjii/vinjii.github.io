@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "What A Difference A Month Makes
+title:  "What A Difference A Month Makes"
 author: Liv
 tags: weekly
 ---
