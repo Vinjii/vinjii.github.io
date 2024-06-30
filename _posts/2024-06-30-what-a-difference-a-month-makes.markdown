@@ -4,12 +4,12 @@ title:  "What A Difference A Month Makes"
 author: Liv
 tags: weekly
 ---
-💭 I've not updated this journal in a few weeks because my elderly (16!) dog is ill, and it's really getting to me.
-I spent two weeks at E and J's looking after Blue. Cleaning the balcony. Cleaning Blue. Cleaning myself. A weirdly exhausting Perpetuum Mobile.
-Then I took a flight to London for the Taylor Swift gig (which was...difficult for me for reasons), followed by the Self-Publishing Show (where I was volunteering) before heading back to Switzerland because Blue wasn't recovering.
-Vets diagnosed him with colitis. We're not sure if anything else is going on.
-Currently, it feels as though he's slowly declining because he has no appetite, no matter what we give him.
-I also got stuck in Luton for 24 hours and had the pleasure of experiencing the Premier Inn in the town centre. It seemed to be auditioning as setting for a sequel to The Shining.
+💭 I've not updated this journal in a few weeks because my elderly (16!) dog is ill, and it's really getting to me.  
+I spent two weeks at E and J's looking after Blue. Cleaning the floor. Cleaning Blue. Applying nappy rash cream to dog bum. Cleaning myself. Washing the dog bed. A weirdly exhausting Perpetuum Mobile.  
+Then I took a flight to London for the Taylor Swift gig (which was...difficult for me for reasons), followed by the Self-Publishing Show (where I was volunteering) before heading back to Switzerland because Blue wasn't recovering.  
+Vets diagnosed him with colitis. We're not sure if anything else is going on.  
+Currently, it feels as though he's slowly declining because he has no appetite, no matter what we give him.  
+I also got stuck in Luton for 24 hours and had the pleasure of experiencing the Premier Inn in the town centre. It seemed to be auditioning as setting for a sequel to The Shining.  
 On the upside, Switzerland won a football match? Perhaps 2024 is my country's year, since it's definitely not my year.  
 
 📺 I'm watching [The Great](https://www.imdb.com/title/tt2235759/) with E. On S3, and I'm worried about my favourite couple. M always has Friends on in the background, and it's incredibly soothing.  
