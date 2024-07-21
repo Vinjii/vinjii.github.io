@@ -8,7 +8,7 @@ tags: weekly
 
 🎥 I went to see **Haikyu!! The Dumpster Battle** with R.  
 
-📺 **The Great** ended well, but those last few episodes had a shift in tone, which I found slightly depressing. Started **Not Dead Yet**, and so far find I fairly amusing. **Evil** is an incredibly engrossing supernatural and psychological drama by the creators of **The Good Wife & The Good Fight**.  
+📺 **The Great** ended well, but those last few episodes had a shift in tone, which I found slightly depressing. Started **Not Dead Yet**, and so far I find it fairly amusing. **Evil** is an incredibly engrossing supernatural and psychological drama by the creators of **The Good Wife & The Good Fight**.  
 
 🎮 I started playing a new auto-chess game on iOS: **Team Fight Tactics**.  
 
